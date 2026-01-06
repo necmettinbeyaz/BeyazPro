@@ -1,0 +1,2 @@
+# BeyazPro
+ingilizce kelime ezber
